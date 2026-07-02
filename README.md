@@ -1,2 +1,2 @@
 # tiktok-reporting-tool
-Telegram https://lnk.ua/NqZGtCn3P
+Telegram https://t.me/snpytiktok
